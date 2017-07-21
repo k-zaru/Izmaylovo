@@ -14,7 +14,7 @@ There is a high concentration of khrushchevkas in this district, mostly built fr
 - What role three different areas play in a life of people living and visiting Izmaylovo? 
 - What are the most popular places? 
 - What Izmaylovo neighbourhood is talking about?
-- Is it a logic behind the demolition of these particular khrushchevkas? 
+- Is there any logic behind the demolition of these particular khrushchevkas? 
 - Where are this buildings located and what typology belong to?
 
 # Link to the presentation
